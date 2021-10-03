@@ -4,11 +4,17 @@ description: After months of planning and weeks of final arrangements it was
   time to hit the road for Wendera’s Land Lap.  We are swapping the waves for
   bitumen and dirt, as the skipper and crew of Wendera now traverse our great
   Australian landscape.
-author: Missy
+author: Missy Cochrane
 date: 2021-07-26T02:59:45.955Z
 tags:
   - created
 ---
+* Day 1
+* Perth to Three Springs
+* 327 kms
+
+
+
 After months of planning and weeks of final arrangements it was time to hit the road for Wendera’s Land Lap.  We are swapping the waves for bitumen and dirt, as the skipper and crew of Wendera now traverse our great Australian landscape.
 
 We had a final family dinner last night at 49.  PoPPPP joined us for the first leg of the trip, up to Kalbarri, so we were all up early, raring to go.  It was drizzling with rain when we left Perth just before 8.30am.  The upside of this though, was a rainbow out the window as we finally departed the city.  That’s a good sign …. right? We had a bathroom stop at Gillingarra, which rates a mention as the ladies’ toilet had a quaint old sink that matched the bathroom tiles!
