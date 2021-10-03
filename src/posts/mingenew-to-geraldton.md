@@ -9,6 +9,10 @@ date: 2021-07-27T01:55:00.000Z
 tags:
   - created
 ---
+* Day 2
+* Mingnew to Geraldton
+* 117 kms
+
 It poured with rain overnight, so we woke to a pool outside our door. After a quick breakfast we were off to Depot Hill for a recommended walk to see amazing wildflowers.  At the Hill just outside of town, Paul and I headed up while PoPPPP waited in the carpark. When we got to the top, there was a sign pointing out the directions of each of the local attractions. It was then obvious we were at the wrong(ly) \[inside family joke!] Depot Hill lookout. So we quickly scampered back down the hill, as we needed to get to the correct location and be back in time to vacate the caravan park by 10.00am (not wanting to incur the ire of the Caravan Manageress!).
 
 It started to drizzle as we got to the real Depot Hill, so Paul and I set off.  We didn’t venture too far before we realised that time was against us and we headed back. In the short distance we did manage there were still only a scant few wildflowers.
@@ -32,7 +36,5 @@ It was then onto the HMAS Sydney II Memorial. This memorial is a moving tribute 
 Our final stop for the day was the Museum of Geraldton.  As we got to the entrance PoPPPP and I were pleased to discover that the current temporary exhibition was the National Geographic Photo of the Year entries, and wow there were some amazing captures.
 
 Day 2 ended with dinner being cooked in Dad’s cabin, making the most of the $139 per night price tag!  So, to date on this adventure, Ziggy (our cooker) has yet to pull his weight!
-
-
 
 ![Leaning tree at Greenough](/static/img/pxl_20210727_030342543~3.jpg "Leaning tree at Greenough")
