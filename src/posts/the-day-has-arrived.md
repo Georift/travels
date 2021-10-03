@@ -1,5 +1,5 @@
 ---
-title: The day has arrived!
+title: Perth to Mingenew
 description: After months of planning and weeks of final arrangements it was
   time to hit the road for Wendera’s Land Lap.  We are swapping the waves for
   bitumen and dirt, as the skipper and crew of Wendera now traverse our great
@@ -10,10 +10,8 @@ tags:
   - created
 ---
 * Day 1
-* Perth to Three Springs
+* Perth to Mingenew
 * 327 kms
-
-
 
 After months of planning and weeks of final arrangements it was time to hit the road for Wendera’s Land Lap.  We are swapping the waves for bitumen and dirt, as the skipper and crew of Wendera now traverse our great Australian landscape.
 
@@ -27,7 +25,7 @@ The drive was very picturesque and we were amazed by the volume of water lying b
 
 We arrived at the Mingenew Caravan Park, quickly unhitched and headed off to Coalseam Conservation Park with a plan to see some wildflowers.
 
-The day was still overcast, with pockets of rain, but as we were only here for the night, this was our only chance to sightsee.
+The day was still overcast, with pockets of rain, but as we were only here for the night, this was our only chance to sight-see.
 
 At the lookout we were nearly blown away with the strength of the wind.  Paul had to steady PoPPPP in place for the photos.  Unfortunately, we were a little early for the carpets of wildflower displays.  We made do with the little pockets of colour we saw and also took some photos of the setting sun over a canola field.
 
