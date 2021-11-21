@@ -1,5 +1,5 @@
 ---
-title: Mingenew to Geraldton
+title: Geraldton
 description: "It poured with rain overnight, so we woke to a pool outside our
   door. After a quick breakfast we were off to Depot Hill for a recommended walk
   to see amazing wildflowers.  At the Hill just outside of town, Paul and I
