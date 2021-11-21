@@ -10,7 +10,7 @@ tags:
   - created
 ---
 * Day 3
-* Trip route Geraldton to Kalbarri - distanced travelled 164kms
+* Trip route Geraldton to Kalbarri - distance travelled 164kms
 * Location: Kalbarri, 592 km north of Perth
 
 We arrived at Enid and BR’s place for morning tea. It was a lovely catch up.  When Dad arranged the meeting BR comment that he couldn’t wait to see the new caravan.  PoPPPP was most put out that BR was more interested in seeing the van than his old friend!
