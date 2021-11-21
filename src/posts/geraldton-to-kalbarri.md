@@ -10,9 +10,8 @@ tags:
   - created
 ---
 * Day 3
-* Geraldton to Kalbarri
-* 592 km north of Perth
-* 164 kms
+* Trip route Geraldton to Kalbarri - distanced travelled 164kms
+* Location: Kalbarri, 592 km north of Perth
 
 We arrived at Enid and BR’s place for morning tea. It was a lovely catch up.  When Dad arranged the meeting BR comment that he couldn’t wait to see the new caravan.  PoPPPP was most put out that BR was more interested in seeing the van than his old friend!
 We then set off for Kalbarri, though Paul and PoPPPP did allow a stop for me to take a couple of photos of the painted sheep in Northam. The town is dotted with brightly painted fibre-glass sheep and sheep dogs. The sheep are a result of a town festival held in 2018 called “Ewe Turn”. I love these quirky things you see in country towns.
