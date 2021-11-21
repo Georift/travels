@@ -1,5 +1,5 @@
 ---
-title: Geraldton to Kalbarri
+title: Kalbarri
 description: We arrived at Enid and BR’s place for morning tea. It was a lovely
   catch up.  When Dad arranged the meeting BR comment that he couldn’t wait to
   see the new caravan.  PoPPPP was most put out that BR was more interested in
