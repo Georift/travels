@@ -9,6 +9,7 @@ tags:
 ---
 * Day 4
 * Kalbarri
+* Location: Kalbarri, 592kms north of Perth.
 
 A new day but yet another overcast and raining one. Undeterred we decided to venture out and see the sights.
 
