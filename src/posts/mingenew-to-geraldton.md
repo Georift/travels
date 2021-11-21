@@ -10,7 +10,7 @@ tags:
   - created
 ---
 * Day 2
-* Trip route Mingnew to Geraldton - distanced travelled 117kms
+* Trip route Mingnew to Geraldton - distance travelled 117kms
 * Location: Geraldton, 424kms north of Perth
 
 It poured with rain overnight, so we woke to a pool outside our door. After a quick breakfast we were off to Depot Hill for a recommended walk to see amazing wildflowers.  At the Hill just outside of town, Paul and I headed up while PoPPPP waited in the carpark. When we got to the top, there was a sign pointing out the directions of each of the local attractions. It was then obvious we were at the wrong(ly) \[inside family joke!] Depot Hill lookout. So we quickly scampered back down the hill, as we needed to get to the correct location and be back in time to vacate the caravan park by 10.00am (not wanting to incur the ire of the Caravan Manageress!).
