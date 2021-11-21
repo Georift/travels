@@ -10,7 +10,7 @@ tags:
   - created
 ---
 * Day 1
-* Trip route Perth to Mingenew -distanced travelled 327 kms
+* Trip route Perth to Mingenew -distance travelled 327 kms
 * Location: Mingenew, 383km north of Perth
 
 After months of planning and weeks of final arrangements it was time to hit the road for Wendera’s Land Lap.  We are swapping the waves for bitumen and dirt, as the skipper and crew of Wendera now traverse our great Australian landscape.
