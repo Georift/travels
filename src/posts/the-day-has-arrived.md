@@ -1,5 +1,5 @@
 ---
-title: Perth to Mingenew
+title: Mingenew
 description: After months of planning and weeks of final arrangements it was
   time to hit the road for Wendera’s Land Lap.  We are swapping the waves for
   bitumen and dirt, as the skipper and crew of Wendera now traverse our great
