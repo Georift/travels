@@ -8,9 +8,8 @@ tags:
   - created
 ---
 * Day 6
-* Kalbarri to Hamelin Pool
-* 252 kms
-* Hamelin Pool 722km north of Perth
+* Trip route: Kalbarri to Hamelin Pool - distance travelled 252kms
+* Location: Hamelin Pool 722kms north of Perth
 
 We dropped PoPPPP to the bus at “OMG it’s too early o’clock!” (6.45am) for his trip home to Perth.  The weather was still inclement but we were hoping that it would improve as we travelled north.
 
