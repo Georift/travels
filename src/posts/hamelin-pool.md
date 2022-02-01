@@ -13,7 +13,7 @@ tags:
 
 We dropped PoPPPP to the bus at “OMG it’s too early o’clock!” (6.45am) for his trip home to Perth.  The weather was still inclement but we were hoping that it would improve as we travelled north.
 
-So now we are flying solo!  Just Paul and I are the open road, wherever that may take us.
+So now we are flying solo!  Just Paul and I on the open road, wherever that may take us.
 
 Today’s stop was at Hamelin Outback Station Stay in the Shark Bay area. The road in was Tessa’s first corrugation test, which she passed with flying colours.  The corrugations were small and even, so the real test will come later. We set up, had some lunch and then set off to see Shell Beach, which was another 48kms towards Denham.  This beach is covered in small white shells for a 60km stretch and is one of only two beaches in the world made entirely of shells.  The shells are the cockle species “Fragum erugatum”. The seawater has a high salinity which has allowed the cockle to proliferate unchecked as its natural predator has not adapted to this environment.  Before Shark Bay became a World Heritage Site, the limestone (known as coquina) formed by the shells was mined and used for construction in Denham.
 
